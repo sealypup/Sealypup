@@ -1,4 +1,5 @@
-![Uploading IMG_4257.png…]()
+<img width="208" height="260" alt="pony-town-🍥 Sweetie ! __ oc DNC🍦-dance-sit-hearts-blinking-padded-4x" src="https://github.com/user-attachments/assets/4500b530-7145-4b79-82a2-4e1591ea922c" />
+
 
 Hi there 👋
 
