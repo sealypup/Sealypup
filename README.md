@@ -10,9 +10,7 @@ u can find me on other platforms ( toyhouse, tiktok, artfight, discord, etc ) I 
 
 I'm a minor ( under 18 ) so I'd prefer if adults don't try and be friends with me
 
-***other*** : u can see my links over at my link tree
-
-[♡Linktree](https://linktr.ee/sealypupp)
+English isnt my first language so expect mistakes sometimes !
 
 
 <!--
