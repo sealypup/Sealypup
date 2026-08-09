@@ -1,6 +1,6 @@
 <img width="255" height="255" alt="Sticker_vamoopy_Splash_Of_Love" src="https://github.com/user-attachments/assets/3ddac41e-7e86-4e7f-a543-9ff904bbf2b3" />
 
-HOWDY !! here's some quick info abt me ^w^
+HOWDY !! here's some quick info abt me
 
 ***my fandoms*** : Roblox admins/robloxia, blocktales, phighting, bad things, the moon i rot behind, Murder drones, and etc!
 
@@ -10,7 +10,7 @@ u can find me on other platforms ( toyhouse, tiktok, artfight, discord, etc ) I 
 
 I'm a minor ( under 18 ) so I'd prefer if adults don't try and be friends with me
 
-***other*** : u can see my links over at my link tree :3 
+***other*** : u can see my links over at my link tree
 
 [♡Linktree](https://linktr.ee/sealypupp)
 
