@@ -1,6 +1,18 @@
 <img width="255" height="255" alt="Sticker_vamoopy_Splash_Of_Love" src="https://github.com/user-attachments/assets/3ddac41e-7e86-4e7f-a543-9ff904bbf2b3" />
 
-HOWDY !!
+HOWDY !! here's some quick info abt me ^w^
+
+***my fandoms*** : Roblox admins/robloxia, blocktales, phighting, bad things, the moon i rot behind, Murder drones, and etc!
+
+***BYI*** : I'm an anxious person but I love interacting with people, I just feel extremely shy when it comes to approaching em.
+
+u can find me on other platforms ( toyhouse, tiktok, artfight, discord, etc ) I use "Sealypup" on all of them !
+
+I'm a minor ( under 18 ) so I'd prefer if adults don't try and be friends with me
+
+***other*** : u can see my links over at my link tree :3 !
+
+[![Linktree](https://shields.io)](https://linktr.ee/sealypupp)
 
 <!--
 **sealypup/Sealypup** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
