@@ -16,7 +16,7 @@ English isnt my first language so expect mistakes sometimes !
 
 ==============
 
-check out my ***pronouns.cc*** if u wanna learn more abt me !! 
+check out my ***pronouns.cc*** if u wanna learn more abt me !! it's linked on my ***linktree***
 
 <!--
 **sealypup/Sealypup** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
