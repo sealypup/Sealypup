@@ -10,9 +10,10 @@ u can find me on other platforms ( toyhouse, tiktok, artfight, discord, etc ) I 
 
 I'm a minor ( under 18 ) so I'd prefer if adults don't try and be friends with me
 
-***other*** : u can see my links over at my link tree :3 !
+***other*** : u can see my links over at my link tree :3 
 
-[![Linktree](https://shields.io)](https://linktr.ee/sealypupp)
+[♡Linktree](https://linktr.ee/sealypupp)
+
 
 <!--
 **sealypup/Sealypup** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
