@@ -1,7 +1,6 @@
-<img width="208" height="260" alt="pony-town-🍥 Sweetie ! __ oc DNC🍦-dance-sit-hearts-blinking-padded-4x" src="https://github.com/user-attachments/assets/4500b530-7145-4b79-82a2-4e1591ea922c" />
+<img width="255" height="255" alt="Sticker_vamoopy_Splash_Of_Love" src="https://github.com/user-attachments/assets/3ddac41e-7e86-4e7f-a543-9ff904bbf2b3" />
 
-
-HOWDY ! I got no idea what to add here so just look at my oc Sweetie 
+HOWDY !!
 
 <!--
 **sealypup/Sealypup** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
